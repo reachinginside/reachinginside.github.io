@@ -2,7 +2,7 @@
 layout: post
 title:  "The Last Third"
 date:   2016-03-31 20:10:37 -0600
-categories: recovery meditation
+categories: 
 ---
 
 I'm entering what I think of as the last third of my life.
