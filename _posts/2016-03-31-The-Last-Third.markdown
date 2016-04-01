@@ -7,7 +7,7 @@ categories:
 
 I'm entering what I think of as the last third of my life.
 
-Now I’m not basing this purely on numbers but if I was told today I was going to live until I was 75 then I'd be ok with that.  When would I prefer to die?  I can't answer that so 75 it is.
+Now I'm not basing this purely on numbers but if I was told today I was going to live until I was 75 then I'd be ok with that.  When would I prefer to die?  I can't answer that so 75 it is.
 
 Dividing up, labelling and otherwise using arbitrary perspectives are not typically of interest to me.  But recent events have tempted me to consider my life differently.  And while I understand that this black and white thinking is not helpful for me, I do it nonetheless because I want to communicate the change I'm undergoing.
 
