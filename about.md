@@ -4,12 +4,10 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](http://jekyllrb.com/)
+My name is not Reaching Inside.  In fact, this is an anonomous blog in the spirit of Anonymous groups.
 
-You can find the source code for the Jekyll new theme at:
-{% include icon-github.html username="jglovier" %} /
-[jekyll-new](https://github.com/jglovier/jekyll-new)
+I currently attend CoDA groups on Fridays.  Being in recovery of sorts I am progessing to the state of more systematic sharing and this blog is going to be a mechanism for my internal work.
 
-You can find the source code for Jekyll at
-{% include icon-github.html username="jekyll" %} /
-[jekyll](https://github.com/jekyll/jekyll)
+This is in the spirit of Recovery Blogs and that of sharing with group members in an anonymous manner.
+
+
