@@ -6,9 +6,15 @@ categories:
 ---
 
 
-I'm not an expert on identifying codependency.  However I am probably more astute at identifying it in others than myself.  I attend a Codependents Anonymous group now - just about six months.  There, I can practice listening to others, and can practice sharing openly with others.  And some weeks it's simply where I remember that I'm a codependent.
+I'm not an expert on identifying codependency, especially not my own.  However I am getting better at identifying it in others.  
 
-Because of my new **wisdom** I now see this characteristic most everywhere I go.  When I do notice the behavior, I make a concerted effort to not be a pompous prick;  nor should I let myself be contemptous of those who still suffer the affliction.   That's not to say that it's easy for me to not be a dick, and yes I'm fully aware - I once admitted with pride and irony both, when a friend asked how a recent book club meeting went: "It was good.  I won".  
+I now attend a Codependents Anonymous group - I'm a six-month veteran.  On Friday evenings, I can practice patiently listening to others (boy do I need it), and I can practice sharing openly with people.  And everyone is committed to following some group rules. 
+
+Some weeks I make headway, I make improvements or I gain insight; some weeks it's like I'm starting over and simply a time I dedicate to remembering that I'm a codependent.
+
+Because of of this new perspective about my interactions with others, I now see this behaviour everywhere I go. I try to avoid being contemptous of *those* who still behave this way, but with a little bit of knowledge and a missing a touch of humility, its easy to mistakenly see others flaws and not ones' own.
+
+That's not to say that it's easy for me to not be a dick, and yes I'm fully aware - I once admitted with pride and irony both, when a friend asked how a recent book club meeting went: "It was good.  I won".  
 
 I'm getting better overall, but I do notice when others are letting their codependency show.  And as often as not, it's in other support groups.
 
